@@ -1,2 +1,2 @@
-# Dr.-Mart-nez-Portfolio
+# Dr.-Martinez-Portfolio
 Portfolio
